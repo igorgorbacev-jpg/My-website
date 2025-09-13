@@ -6,5 +6,8 @@
 
  14.09.2025
 
-https://funpick.ru/wp-content/uploads/2018/04/s1200.jpeg
+![](https://i.imgur.com/fI2fOv2.jpeg)
+
+
+
 
